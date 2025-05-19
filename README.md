@@ -2,7 +2,7 @@
 
 Best stresser | booter 2024 very powerfull and with multibypass methods
 
-Link : https://susstresser.xyz/
+Link : https://susstresser.sbs/
 
 -Stable Power
 -99% UpTime
